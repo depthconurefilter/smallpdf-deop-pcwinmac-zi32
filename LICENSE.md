@@ -1,4 +1,4 @@
-# 
+# Ligero Smallpdf Desktop preajustes para Mac OS | Avanzado Smallpdf Desktop preajustes para PC Windows. Con cálculo de impuestos federales y informes financieros — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
